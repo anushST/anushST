@@ -1,6 +1,6 @@
 # **Anushervon Sattorov** — *Python Backend Engineer*  
 
-📧 anuhservon.s.06@gmail.com | 📞 +992 400 20-88-88 |  [GitHub](https://github.com/Anushervon) | [LinkedIn](https://linkedin.com/in/Anushervon)
+📧 anuhservon.s.06@gmail.com | 📞 +992 400 20-88-88 | [LinkedIn](https://linkedin.com/in/Anushervon)
 
 ---
 
